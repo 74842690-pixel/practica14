@@ -1,1 +1,3 @@
 # practica14
+
+Alumno: KATSUMI ALBERT MAMANI CORRALES
